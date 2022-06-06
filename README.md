@@ -1,0 +1,6 @@
+- Hi! I'm Yajien, you can call me jay! 
+- I'm from the Philippines
+- My birthdate is June 15 
+- I'm 16 years old (as of the time this was written)
+- My interets are watching documents and recently, learning how to code! (the reason why i made a github account)
+- I have absolutely no idea how or where to code. 
